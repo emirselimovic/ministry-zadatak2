@@ -1,1 +1,0 @@
-# ministry-zadatak2
